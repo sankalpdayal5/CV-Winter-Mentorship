@@ -1,0 +1,1 @@
+# GirlScript-Manipal-Mentorship
